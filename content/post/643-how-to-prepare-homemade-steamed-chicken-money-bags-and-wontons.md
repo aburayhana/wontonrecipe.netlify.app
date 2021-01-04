@@ -1,0 +1,103 @@
+---
+description: "How to Prepare Homemade Steamed Chicken Money Bags and Wontons"
+title: "How to Prepare Homemade Steamed Chicken Money Bags and Wontons"
+slug: 643-how-to-prepare-homemade-steamed-chicken-money-bags-and-wontons
+date: 2020-09-30T20:30:54.991Z
+image: https://img-global.cpcdn.com/recipes/e4b6ed9e742ea1c8/751x532cq70/steamed-chicken-money-bags-and-wontons-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/e4b6ed9e742ea1c8/751x532cq70/steamed-chicken-money-bags-and-wontons-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/e4b6ed9e742ea1c8/751x532cq70/steamed-chicken-money-bags-and-wontons-recipe-main-photo.jpg
+author: Jack Rodgers
+ratingvalue: 4.5
+reviewcount: 6460
+recipeingredient:
+- " cabbage shredded finely"
+- " chicken breast mince"
+- " spring onions"
+- " carrot grated"
+- " capsicum finely chopped"
+- " spring onion chopped finely"
+- " small onion"
+- " minced garlic"
+- " soya sauce"
+- " green chilli sauce"
+- " salt"
+- " black pepper powder"
+- " Chinese seasoning"
+- " vinegar"
+- " wonton wrapper or homemade wrappers"
+- " plain flour for homemade wrappers"
+- " water approximately"
+- " baking powder"
+- " vegetable or olive oil"
+recipeinstructions:
+- "Make a paste of chicken mince in a processor.Heat 2 tsp oil in a frying pan and sprinkle garlic.Fry till light brown and add the onion.Stir fry and add finely chopped capsicum, shredded cabbage,carrot,spring onion and chicken paste.Cook for 5 minutes.Add soya sauce,chilli sauce,black pepper and salt to taste.Sprinkle some Chinese seasoning and toss.Set aside to cool."
+- "To make homemade wanton sheets sift flour.Mix 2 tsp oil,salt,baking powder.Add water and make a tight dough.Divide the dough into equal sized balls and roll into thin rounds.Place a tsp of filling in the centre. Moist the edges with water.Gather up the edges,pinch together twist and seal with blanched spring onion strips.These can also be made by folding half moon,then gathering both ends and sealing with a drop of water."
+- "Grease a steamer tray or bamboo steamer and arrange the dumplings in it.Place over a pan filled with water and cover and steam for 6 to 7 minutes just before serving.Serve hot with sweet chilli garlic sauce."
+categories:
+- Recipe
+tags:
+- steamed
+- chicken
+- money
+
+katakunci: steamed chicken money 
+nutrition: 148 calories
+recipecuisine: American
+preptime: "PT22M"
+cooktime: "PT60M"
+recipeyield: "3"
+recipecategory: Dessert
+
+---
+
+
+![Steamed Chicken Money Bags and Wontons](https://img-global.cpcdn.com/recipes/e4b6ed9e742ea1c8/751x532cq70/steamed-chicken-money-bags-and-wontons-recipe-main-photo.jpg)
+
+Hello everybody, I hope you are having an amazing day today. Today, we're going to make a special dish, steamed chicken money bags and wontons. It is one of my favorites food recipes. For mine, I will make it a bit unique. This is gonna smell and look delicious.
+
+
+
+Steamed Chicken Money Bags and Wontons is one of the most well liked of recent trending meals on earth. It is easy, it's quick, it tastes yummy. It is appreciated by millions daily. Steamed Chicken Money Bags and Wontons is something which I've loved my entire life. They are fine and they look fantastic.
+
+
+To get started with this particular recipe, we must prepare a few ingredients. You can cook steamed chicken money bags and wontons using 19 ingredients and 3 steps. Here is how you cook that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Steamed Chicken Money Bags and Wontons:
+
+1. Take  cabbage shredded finely
+1. Get  chicken breast mince
+1. Make ready  spring onions
+1. Get  carrot grated
+1. Prepare  capsicum finely chopped
+1. Get  spring onion chopped finely
+1. Take  small onion
+1. Take  minced garlic
+1. Make ready  soya sauce
+1. Get  green chilli sauce
+1. Take  salt
+1. Get  black pepper powder
+1. Take  Chinese seasoning
+1. Get  vinegar
+1. Get  wonton wrapper or homemade wrappers
+1. Take  plain flour for homemade wrappers
+1. Get  water approximately
+1. Make ready  baking powder
+1. Make ready  vegetable or olive oil
+
+
+
+
+<!--inarticleads2-->
+
+##### Instructions to make Steamed Chicken Money Bags and Wontons:
+
+1. Make a paste of chicken mince in a processor.Heat 2 tsp oil in a frying pan and sprinkle garlic.Fry till light brown and add the onion.Stir fry and add finely chopped capsicum, shredded cabbage,carrot,spring onion and chicken paste.Cook for 5 minutes.Add soya sauce,chilli sauce,black pepper and salt to taste.Sprinkle some Chinese seasoning and toss.Set aside to cool.
+1. To make homemade wanton sheets sift flour.Mix 2 tsp oil,salt,baking powder.Add water and make a tight dough.Divide the dough into equal sized balls and roll into thin rounds.Place a tsp of filling in the centre. Moist the edges with water.Gather up the edges,pinch together twist and seal with blanched spring onion strips.These can also be made by folding half moon,then gathering both ends and sealing with a drop of water.
+1. Grease a steamer tray or bamboo steamer and arrange the dumplings in it.Place over a pan filled with water and cover and steam for 6 to 7 minutes just before serving.Serve hot with sweet chilli garlic sauce.
+
+
+
+
+So that's going to wrap this up for this exceptional food steamed chicken money bags and wontons recipe. Thanks so much for reading. I'm confident you will make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!
